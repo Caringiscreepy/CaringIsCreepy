@@ -1,1 +1,1 @@
-![descarga (8)](https://github.com/user-attachments/assets/d179f1ec-7ade-4a89-b410-8c6eb959c000)
+![descarga (10)](https://github.com/user-attachments/assets/b1971910-120e-4b5c-a1e7-c4995f338ba3)
