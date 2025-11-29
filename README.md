@@ -1,4 +1,7 @@
-&emsp; &emsp; &emsp; &emsp; &emsp; &emsp;![descarga (10)](https://github.com/user-attachments/assets/b1971910-120e-4b5c-a1e7-c4995f338ba3)
+<div align="center">
 
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp; &emsp;[Atabook](https://caringiscreepy.atabook.org/)
-&emsp; &emsp; &emsp; &emsp;&emsp; &emsp; &emsp; &emsp;[strawpage](https://caringiscreepy.straw.page/)
+![](https://komarev.com/ghpvc/?username=2ft-high&label=Toss,toss^-^!&color=d8a5bd)
+ 
+<img width="600" height="900" src="https://files.catbox.moe/nki56n.gif">
+
+[<img width="280" height="900" src="https://files.catbox.moe/lmcw4a.png">](https://caringiscreepy.atabook.org/) [<img width="280" height="900" src="https://files.catbox.moe/7ibquv.png">](https://caringiscreepy.straw.page/) [<img width="280" height="900" src="https://files.catbox.moe/i73yrs.png">](https://rentry.co/caringiscreepy)
