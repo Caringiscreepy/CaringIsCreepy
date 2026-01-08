@@ -1,7 +1,1 @@
-<div align="center">
-
-![](https://komarev.com/ghpvc/?username=2ft-high&label=Toss,toss^-^!&color=d8a5bd)
- 
-<img width="600" height="900" src="https://files.catbox.moe/nki56n.gif">
-
-[<img width="280" height="900" src="https://files.catbox.moe/lmcw4a.png">](https://caringiscreepy.atabook.org/) [<img width="280" height="900" src="https://files.catbox.moe/7ibquv.png"><img width="280" height="900" src="https://files.catbox.moe/i73yrs.png">](https://rentry.co/caringiscreepy)
+![Zodiaco_ Ever After High - Personajes (Parte 1)](https://github.com/user-attachments/assets/25752043-f8cc-4103-a767-1542457d75c0)
