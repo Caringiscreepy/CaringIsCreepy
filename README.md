@@ -18,3 +18,6 @@
 <img src="https://github.com/user-attachments/assets/2eec8111-1e6e-4dfb-89b1-c7a11de0ed42" width="100%"/>
 
 
+
+── . <img width="22" height="23" alt="image" src="https://github.com/user-attachments/assets/0940a029-e5f2-4211-8b2f-215ae83e313a" /> Int info
+
