@@ -3,7 +3,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤto follow my destiny, as the next Snow White." <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3f45c765-4aa2-48f8-aafb-0de07cbceb52" />
 
-<img src="https://github.com/user-attachments/assets/15d55900-6f95-459c-b54a-b010162183a8" width="100%"/>
+<img src="https://github.com/user-attachments/assets/74493f9a-35e7-440a-b3b5-8bc202438967)" width="100%"/>
 
 
   
