@@ -14,5 +14,6 @@
 
 
 
-── . <img width="22" height="23" alt="image" src="https://github.com/user-attachments/assets/0940a029-e5f2-4211-8b2f-215ae83e313a" /> Int info
+── . <img width="22" height="23" alt="image" src="https://github.com/user-attachments/assets/0940a029-e5f2-4211-8b2f-215ae83e313a" /> PT Int info ^_^ ﹕
+C+H Friendly ⋮ Alwais int, If i'm afk or if u prefer w2i ⋮ Mostly offtab ⋮ Read socials BYI/F.ᐟ
 
