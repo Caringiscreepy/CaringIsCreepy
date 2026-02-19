@@ -1,7 +1,3 @@
-ㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/3f45c765-4aa2-48f8-aafb-0de07cbceb52" />˙ . ꒷ 🍰 . 𖦹˙— "Kyoko"![mhybgy](https://github.com/user-attachments/assets/58dbe8f9-d591-4056-bab8-09bab862f104)
-
-
 <img src="https://github.com/user-attachments/assets/74493f9a-35e7-440a-b3b5-8bc202438967" width="100%"/>
   
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤ        ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤ<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ef793f09-95ea-4b5a-a201-9772bff74676" /> [atabook](https://caringiscreepy.atabook.org/) ㅤㅤ<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6b9c489c-338a-4c13-befd-fffc27ca1966" /> [pronouns](https://pronouns.cc/@caringiscreepy) ㅤㅤㅤㅤ<img src="https://github.com/user-attachments/assets/401f5cfb-9e9f-4e00-8223-dd34d1de5bbc" width="5%"/>ㅤㅤㅤ<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/f846856c-f89f-42ce-8bc7-087c2b6da70f" /> [twitter](https://x.com/caringiiscreepy) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
