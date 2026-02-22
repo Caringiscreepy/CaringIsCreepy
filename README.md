@@ -1,3 +1,7 @@
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=8f60a3&base=1000&label=♡)
+
 ![memem](https://github.com/user-attachments/assets/a14dc967-261b-479f-990d-85253bce521f)
 
 
