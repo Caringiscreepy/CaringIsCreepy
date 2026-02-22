@@ -1,4 +1,4 @@
-![memem](https://github.com/user-attachments/assets/a14dc967-261b-479f-990d-85253bce521f)
+ />![memem](https://github.com/user-attachments/assets/a14dc967-261b-479f-990d-85253bce521f)
 
 
   
@@ -7,3 +7,6 @@
 
 ── . <img width="22" height="23" alt="image" src="https://github.com/user-attachments/assets/0940a029-e5f2-4211-8b2f-215ae83e313a" /> PT Int info ^_^ ﹕
 C+H Friendly ⋮ Alwais int, If i'm afk or if u prefer w2i ⋮ Mostly offtab ⋮ Read socials BYI/F.ᐟ
+
+
+![ai love angel syndrome (1)](https://github.com/user-attachments/assets/5e0b5a3d-0d02-401f-b504-cd82ed9629c2)
