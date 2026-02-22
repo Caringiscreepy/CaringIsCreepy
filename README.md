@@ -12,4 +12,7 @@
 ㅤㅤㅤㅤ  [twitter](https://x.com/caringiiscreepy) ㅤ![97t2w3](https://github.com/user-attachments/assets/a21de61a-df55-4ac6-b07d-e666028dc8a4)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-![ai love angel syndrome (1)](https://github.com/user-attachments/assets/5e0b5a3d-0d02-401f-b504-cd82ed9629c2)
+![ai](https://github.com/user-attachments/assets/ffbf8d6a-1044-4574-9cea-88fd37bcf3ea)
+
+
+
