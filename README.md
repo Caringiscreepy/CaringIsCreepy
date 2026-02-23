@@ -11,6 +11,8 @@
   [pronouns](https://pronouns.cc/@caringiscreepy) ㅤㅤㅤㅤ![5y690c](https://github.com/user-attachments/assets/2c2813b2-63d5-4a4a-9338-b606d7dc8a5e)
 ㅤㅤㅤㅤ  [twitter](https://x.com/caringiiscreepy) ㅤ![97t2w3](https://github.com/user-attachments/assets/a21de61a-df55-4ac6-b07d-e666028dc8a4)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-![_lh ofc](https://github.com/user-attachments/assets/23606dc0-731f-4cff-a726-3864d1f423b2)
+![ai love angel syndrome](https://github.com/user-attachments/assets/1683e0d8-49ef-42ef-8f7d-4eeaf4d2bf63)
+
+
 
 
