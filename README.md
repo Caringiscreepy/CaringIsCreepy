@@ -1,19 +1,18 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=Caringiscreepy&color=8f60a3&base=1000&label=♡)
+![](https://komarev.com/ghpvc/?username=Caringiscreepy&color=ebb551&base=1000&label=♡)
+
+<img width="80" height="256" alt="tumblr_ab5e427a1f6c2c1cc15801ed044c0f03_b64c7d67_400" src="https://github.com/user-attachments/assets/945a4068-7b52-41f6-a014-fcd4a38b2bce" />
+
+
+$\small\textcolor{#fbd6bd}{\textsf{"text text text"}}$
 
 
 ![⠀🥞 ⠀navia⠀〜⠀teaser gif ⠀ ☆ (1) (1)](https://github.com/user-attachments/assets/907d8a2b-a5e6-4edc-a6eb-d5479c1d7ea8)
 
 
-  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ![6mt4em](https://github.com/user-attachments/assets/1cf2c774-dc08-48cc-84c4-23ddde3b9f9e)
-      [atabook](https://caringiscreepy.atabook.org/) ㅤㅤ![v7v4u6](https://github.com/user-attachments/assets/9fc26e41-8d5b-4e2b-b51f-d6c428170acc)
-  [pronouns](https://pronouns.cc/@caringiscreepy) ㅤㅤㅤㅤ![5y690c](https://github.com/user-attachments/assets/2c2813b2-63d5-4a4a-9338-b606d7dc8a5e)
-ㅤㅤㅤㅤ  [twitter](https://x.com/caringiiscreepy) ㅤ![97t2w3](https://github.com/user-attachments/assets/a21de61a-df55-4ac6-b07d-e666028dc8a4)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ㅤ
+<img width="20" height="20" alt="IMG-5071" src="https://github.com/user-attachments/assets/d60cb1f5-dca9-4603-8f3d-feb0e8e4cfb6" />ㅤㅤ ୨୧  ㅤㅤㅤㅤ[Atabook](https://caringiscreepy.atabook.org/)ㅤㅤ✦ㅤㅤ[Pronoums.cc](https://pronouns.cc/@caringiscreepy)ㅤㅤ✦ㅤㅤ[Twitter](https://x.com/caringiiscreepy)ㅤㅤ  ㅤㅤ ୨୧ㅤㅤ  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ㅤ
 ![⠀🥞 ⠀navia⠀〜⠀teaser gif ⠀ ☆ (3)](https://github.com/user-attachments/assets/e0b0b7b1-911a-4436-8e3f-28f1594af4a5)
-
-
 
 
