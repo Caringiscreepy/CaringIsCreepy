@@ -5,13 +5,14 @@
 <img width="80" height="256" alt="tumblr_ab5e427a1f6c2c1cc15801ed044c0f03_b64c7d67_400" src="https://github.com/user-attachments/assets/945a4068-7b52-41f6-a014-fcd4a38b2bce" />
 
 
-$\small\textcolor{#fbd6bd}{\textsf{"text text text"}}$
+$\small\textcolor{#eddcaf}{\textsf{"text text text"}}$
 
 
 ![⠀🥞 ⠀navia⠀〜⠀teaser gif ⠀ ☆ (1) (1)](https://github.com/user-attachments/assets/907d8a2b-a5e6-4edc-a6eb-d5479c1d7ea8)
 
 
-<img width="20" height="20" alt="IMG-5071" src="https://github.com/user-attachments/assets/d60cb1f5-dca9-4603-8f3d-feb0e8e4cfb6" />ㅤㅤ ୨୧  ㅤㅤㅤㅤ[Atabook](https://caringiscreepy.atabook.org/)ㅤㅤ✦ㅤㅤ[Pronoums.cc](https://pronouns.cc/@caringiscreepy)ㅤㅤ✦ㅤㅤ[Twitter](https://x.com/caringiiscreepy)ㅤㅤ  ㅤㅤ ୨୧ㅤㅤ  
+<img width="20" height="20" alt="IMG-5071" src="https://github.com/user-attachments/assets/d60cb1f5-dca9-4603-8f3d-feb0e8e4cfb6" />ㅤㅤ ୨୧  ㅤㅤㅤㅤ[Atabook](https://caringiscreepy.atabook.org/)ㅤㅤ✦ㅤㅤ[Pronoums.cc](https://pronouns.cc/@caringiscreepy)ㅤㅤ✦ㅤㅤ[Twitter](https://x.com/caringiiscreepy)ㅤㅤ  ㅤㅤ ୨୧ㅤㅤ ![ytr43p](https://github.com/user-attachments/assets/230cc544-c6e1-4ac9-b6fd-90a8efd684e9)
+ 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⠀ ⠀ ⠀ ⠀ ⠀ㅤ
 ![⠀🥞 ⠀navia⠀〜⠀teaser gif ⠀ ☆ (3)](https://github.com/user-attachments/assets/e0b0b7b1-911a-4436-8e3f-28f1594af4a5)
 
