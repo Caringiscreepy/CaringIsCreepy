@@ -5,7 +5,7 @@
 <img width="80" height="256" alt="tumblr_ab5e427a1f6c2c1cc15801ed044c0f03_b64c7d67_400" src="https://github.com/user-attachments/assets/945a4068-7b52-41f6-a014-fcd4a38b2bce" />
 
 
-$\small\textcolor{#eddcaf}{\textsf{"text text text"}}$
+$\small\textcolor{#eddcaf}{\textsf{"Uh? Ready to admit defeat?"}}$
 
 
 ![⠀🥞 ⠀navia⠀〜⠀teaser gif ⠀ ☆ (1) (1)](https://github.com/user-attachments/assets/907d8a2b-a5e6-4edc-a6eb-d5479c1d7ea8)
