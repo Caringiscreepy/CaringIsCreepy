@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=Caringiscreepy&color=ebb551&base=1000&label=♡)
 
-<img src= "https://files.catbox.moe/0umbao.png" width="70%"/>
+<img src= "https://github.com/user-attachments/assets/e75b108a-8640-4bcb-8524-39293b52bbba" width="10%"/>
 
 
 $\small\textcolor{#eddcaf}{\textsf{"Ah, Ready to admit defeat?"}}$
