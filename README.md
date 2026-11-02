@@ -6,8 +6,8 @@
 
 
  <img width="30" height="30" alt="tumblr_2bd222c37d17bcbbcf664df50a0ee9e7_e032e466_30" src="https://github.com/user-attachments/assets/4854c7e7-e86f-407b-a485-16d69f8a720a" /> [Ata](https://caringiscreepy.atabook.org/) [Spacehey](https://spacehey.com/profile?id=4535052) [Pronounspage](https://pronouns.cc/@caringiscreepy) [Twitter](https://x.com/caringiiscreepy)  <img width="30" height="30" alt="tumblr_2bd222c37d17bcbbcf664df50a0ee9e7_e032e466_30" src="https://github.com/user-attachments/assets/4854c7e7-e86f-407b-a485-16d69f8a720a" />
-<div align="center"><img width="500" height="500" alt="౨ৎ" src="https://github.com/user-attachments/assets/da16db1f-7fcf-4a5a-b18e-2f4d839c008d" />
 
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤ<img width="540" height="256" alt="Mikasa Ackerman _ Lost Girl (1)" src="https://github.com/user-attachments/assets/c228f64d-2f99-4c87-82d0-a5132ffd7096" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<img width="540" height="256" alt="Mikasa Ackerman _ Lost Girl (1)" src="https://github.com/user-attachments/assets/aeb52145-6400-4906-8f32-f138ee746e35" />
