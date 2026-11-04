@@ -5,7 +5,8 @@
 <img width="736" height="246" alt="descarga (30)" src="https://github.com/user-attachments/assets/c2773c79-6e1d-4b9a-853b-68f455011f50" />
 
 
- <img width="30" height="30" alt="tumblr_2bd222c37d17bcbbcf664df50a0ee9e7_e032e466_30" src="https://github.com/user-attachments/assets/4854c7e7-e86f-407b-a485-16d69f8a720a" /> [Ata](https://caringiscreepy.atabook.org/) [Spacehey](https://spacehey.com/profile?id=4535052) [Pronounspage](https://pronouns.cc/@caringiscreepy) [Twitter](https://x.com/caringiiscreepy)  <img width="30" height="30" alt="tumblr_2bd222c37d17bcbbcf664df50a0ee9e7_e032e466_30" src="https://github.com/user-attachments/assets/4854c7e7-e86f-407b-a485-16d69f8a720a" />
+<img width="40" height="40" alt="tumblr_2a7da5516860b5d9e9c4457a0c5a1297_6828fa82_500" src="https://github.com/user-attachments/assets/6f8aca85-a358-4373-981f-80b15ffa0a0f" />
+ /> [Ata](https://caringiscreepy.atabook.org/) [Spacehey](https://spacehey.com/profile?id=4535052) [Pronounspage](https://pronouns.cc/@caringiscreepy) [Twitter](https://x.com/caringiiscreepy)  <img width="30" height="30" alt="tumblr_2bd222c37d17bcbbcf664df50a0ee9e7_e032e466_30" src="https://github.com/user-attachments/assets/4854c7e7-e86f-407b-a485-16d69f8a720a" />
 
 <div align="center">ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
