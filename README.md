@@ -9,4 +9,4 @@
 
 <div align="center">ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<img src= "https://github.com/user-attachments/assets/c228f64d-2f99-4c87-82d0-a5132ffd7096" width="100%"/>
+<img src= "https://github.com/user-attachments/assets/c228f64d-2f99-4c87-82d0-a5132ffd7096" width="470%"/>
